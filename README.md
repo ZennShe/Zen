@@ -5,7 +5,5 @@ sadad
 dfsafggdfgd
 
 сфвfgdasdsadsafafagdnngvnhcgbxf
-sadsadaD
-gdgdrgdrgs
-yhdthftjyjkyuooluil
+sa
 hxfghgdszfewrilkui
