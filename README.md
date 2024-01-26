@@ -6,5 +6,4 @@ dfsafggdfgd
 
 сфвfgdasdsadsafafagdnngvnhcgbxf
 sa
-hxfghgdszfewrilkui
-bdfgdrgdgdsz
+hxfghg
