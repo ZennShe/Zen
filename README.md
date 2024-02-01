@@ -4,7 +4,4 @@ zxzxfdff
 sadad
 dfsafggdfgd
 
-сфвfgdasdsadsafafagdnngvnh
-kjjsaDdaad
-xaaDXAdxaXXz
-fcdfd
+сфвfgdasdsadsafaf
