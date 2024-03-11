@@ -4,10 +4,5 @@ zxzxfdff
 sadad
 dsdfhdfggd
 fghdfgfgdxdfsfsdfgfdgsdsadsafaf
-dfdsfsdfds
-fghgfhfzg
-vgfgdsfsd
-lhdgd
-gdvzdvnnvbvb vczxdvd
-cdfsdsxsafggdg
+dfdsfs
 ghhdfgs
